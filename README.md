@@ -1,2 +1,2 @@
 # Franqlassic
-franqlassic is a fashion brand owned by janefrnaces
+franqlassic is a fashion brand owned by janefranaces
